@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @HellNT and im new around github
+- I have been working as developer for a few years and I wanna learn more from everyone and everything, and thats why you can find me here
+- No more to tell by now!
